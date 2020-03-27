@@ -1,2 +1,2 @@
-# Verkefni3-Leikjaforr1
+# Myndband á leik
 https://www.youtube.com/watch?v=TpNo_Ww0hzM
